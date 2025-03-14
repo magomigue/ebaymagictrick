@@ -1,0 +1,1 @@
+Este es un proyecto sin fines de lucro cuyo único propósito es demostrar un truco de magia en un entorno digital. La única modificación realizada en la página es una pequeña redirección que no altera ni interfiere con su funcionamiento original. Todo el contenido y las funcionalidades de la página permanecen intactos, asegurando que la experiencia del usuario no se vea afectada.
